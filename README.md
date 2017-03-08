@@ -1,2 +1,4 @@
 # hello-world
-ideas,coding experences
+ideas,coding experience
+believe in yourself!you are the best!
+
